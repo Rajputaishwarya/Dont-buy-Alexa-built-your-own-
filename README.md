@@ -1,1 +1,1 @@
-# Dont buy Alexa built your own
+# Don't buy Alexa built your own
